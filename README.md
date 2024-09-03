@@ -1,5 +1,4 @@
 Hello✌️ The Name's Ruchir 
-AKA - Fancrafter317
 
 I am a Third Year Computer Science Student based in Mumbai, India. Gaming, reading, coding, tryng to fix electronic stuff are some of the stuff I like to do.
 
